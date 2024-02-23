@@ -20,5 +20,5 @@ experiment with different styles, layouts, and content. You can also add other a
 
 
 Need help?
-For assistance, contact us at support@mobirise.com
-Join our community: https://forums.mobirise.com/
+For assistance, contact us at operations@kifionline.com
+Join our community: https://kifionline.com/
